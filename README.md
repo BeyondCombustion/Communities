@@ -1,6 +1,4 @@
-# Known Forums
-
-Communities centered discussion on cannabis dry herb vaping (may overlap with dabbing)
+# Cannabis Vape Communities
 
 [/r/vaporents](https://reddit.com/r/vaporents)
 
