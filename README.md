@@ -1,5 +1,7 @@
 # Cannabis Vape Communities
 
+Communities for discussion of dry herb vaporization and dabbing
+
 [/r/vaporents](https://reddit.com/r/vaporents)
 
 [FuckCombustion.com](https://fuckcombustion.com)
