@@ -1,5 +1,7 @@
 # Known Forums
 
+Communities centered discussion on cannabis dry herb vaping (may overlap with dabbing)
+
 [/r/vaporents](https://reddit.com/r/vaporents)
 
 [FuckCombustion.com](https://fuckcombustion.com)
