@@ -8,4 +8,6 @@
 
 [Vape Life Forum](https://forum.vapelife.com/)
 
+[VaporAsylum](https://vaporasylum.com/)
+
 [420VapeZone](https://www.420vapezone.com/forums/discussions)
