@@ -1,6 +1,6 @@
 # Cannabis Vape Communities
 
-Communities for discussion of dry herb vaporization and dabbing
+Communities for discussion of dry herb vapes (and dab stuff too)
 
 [/r/vaporents](https://reddit.com/r/vaporents)
 
