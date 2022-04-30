@@ -1,4 +1,4 @@
-# Other Forums
+# Known Forums
 
 [/r/vaporents](https://reddit.com/r/vaporents)
 
