@@ -12,4 +12,4 @@ Communities for discussion of dry herb vapes (and dab stuff too)
 
 [VaporAsylum](https://vaporasylum.com/)
 
-[420VapeZone](https://www.420vapezone.com/forums/discussions)
+[420VapeZone Forum](https://www.420vapezone.com/forums/discussions)
