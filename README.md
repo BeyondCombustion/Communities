@@ -1,6 +1,6 @@
-# Cannabis Vape Communities
+# Dry Herb Vape Communities
 
-[Go here if you'd like to add your community or suggest another](https://github.com/Vaporents/How-To-Contribute)
+[Go here if you'd like to add your community or suggest another](https://github.com/BeyondCombustion/How-To-Contribute)
 
 Communities for discussion of dry herb vapes (and dab stuff too)
 
