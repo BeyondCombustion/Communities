@@ -10,7 +10,7 @@ Communities for discussion of dry herb vapes (and dab stuff too)
 
 [/r/trees - The ent gathering place](https://www.reddit.com/r/trees/)
 
-[/r/vaporents](https://reddit.com/r/vaporents)
+[/r/vaporents - subreddit for dry herb vaporizers](https://reddit.com/r/vaporents)
 
 [/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
 
