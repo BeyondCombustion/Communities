@@ -8,7 +8,7 @@ Communities for discussion of dry herb vapes (and dab stuff too)
 
 [420VapeZone Forum](https://www.420vapezone.com/forums/discussions)
 
-[Cream City Vapes subreddit](https://reddit.com/r/ccv)
+[Cream City Vapes subreddit /r/ccv](https://reddit.com/r/ccv)
 
 [FuckCombustion.com](https://fuckcombustion.com)
 
