@@ -4,11 +4,13 @@
 
 Communities for discussion of dry herb vapes (and dab stuff too)
 
+[/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
+
 [/r/vaporents](https://reddit.com/r/vaporents)
 
-[420VapeZone Forum](https://www.420vapezone.com/forums/discussions)
+[/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
 
-[Cream City Vapes subreddit /r/ccv](https://reddit.com/r/ccv)
+[420VapeZone Forum](https://www.420vapezone.com/forums/discussions)
 
 [FuckCombustion.com](https://fuckcombustion.com)
 
@@ -17,5 +19,3 @@ Communities for discussion of dry herb vapes (and dab stuff too)
 [Vape Life Forum](https://forum.vapelife.com/)
 
 [VaporAsylum](https://vaporasylum.com/)
-
-[VGoodiEZ subreddit /r/VGoodiEZ](https://www.reddit.com/r/VGoodiez/)
