@@ -6,6 +6,8 @@ Communities for discussion of dry herb vapes (and dab stuff too)
 
 [/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
 
+[/r/FrientExchange - For Frients who exchange (https://www.reddit.com/r/FrientExchange/)
+
 [/r/StonerEngineering - DIY Devices](https://reddit.com/r/StonerEngineering)
 
 [/r/trees - The ent gathering place](https://www.reddit.com/r/trees/)
