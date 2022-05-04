@@ -2,11 +2,11 @@
 
 [Go here if you'd like to add your community or suggest another](https://github.com/BeyondCombustion/How-To-Contribute)
 
-Communities for discussion of dry herb vapes (and dab stuff too)
+## Communities for discussion of dry herb vapes (and dab stuff too)
 
 [/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
 
-[/r/FrientExchange - For Frients who exchange (https://www.reddit.com/r/FrientExchange/)
+[/r/FrientExchange - For Frients who exchange](https://www.reddit.com/r/FrientExchange/)
 
 [/r/StonerEngineering - DIY Devices](https://reddit.com/r/StonerEngineering)
 
