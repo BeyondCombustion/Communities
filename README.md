@@ -1,7 +1,7 @@
 
 [Go here if you'd like to add your community or suggest another](https://github.com/BeyondCombustion/How-To-Contribute)
 
-# Communities for discussion of dry herb vapes (and dab stuff too)
+# List Of Communities
 
 [/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
 
