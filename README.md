@@ -1,31 +1,32 @@
+#### Want to contribute to BeyondCombustion?
 
-#### [Go here if you'd like to add your community or suggest another to the list!](https://github.com/BeyondCombustion/How-To-Contribute)
+[Go here if you'd like to add your community, or suggest another for the list!](https://github.com/BeyondCombustion/How-To-Contribute)
 
 ---
 
 # List Of Communities
 
-[/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
+[/r/ccv](https://reddit.com/r/ccv) - Cream City Vapes subreddit
 
-[/r/FrientExchange - For Frients who exchange](https://www.reddit.com/r/FrientExchange/)
+[/r/FrientExchange](https://www.reddit.com/r/FrientExchange/) - For Frients who exchange
 
-[/r/StonerEngineering - DIY Devices](https://reddit.com/r/StonerEngineering)
+[/r/StonerEngineering](https://reddit.com/r/StonerEngineering) - DIY Devices
 
-[/r/trees - The ent gathering place](https://www.reddit.com/r/trees/)
+[/r/trees](https://www.reddit.com/r/trees/) - The ent gathering place
 
-[/r/vaporents - subreddit for dry herb vaporizers](https://reddit.com/r/vaporents)
+[/r/vaporents](https://reddit.com/r/vaporents) - Subreddit for dry herb vaporizers
 
-[/r/VGoodiEZ - VGoodiEZ subreddit](https://www.reddit.com/r/VGoodiez/)
+[/r/VGoodiEZ](https://www.reddit.com/r/VGoodiez/) - VGoodiEZ subreddit
 
 [420VapeZone Forum](https://www.420vapezone.com/forums/discussions)
 
-[FuckCombustion.com](https://fuckcombustion.com)
+[FuckCombustion.com Forum](https://fuckcombustion.com)
 
-[The Rogue Wax Works Community](https://www.theroguewaxworks.com/a/p/community)
+[The Rogue Wax Works Community Forums](https://www.theroguewaxworks.com/a/p/community)
 
 [Vape Life Forum](https://forum.vapelife.com/)
 
-[VaporAsylum](https://vaporasylum.com/)
+[VaporAsylum Forum](https://vaporasylum.com/)
 
 ---
 
