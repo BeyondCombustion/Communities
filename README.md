@@ -1,5 +1,5 @@
 
-[Go here if you'd like to add your community or suggest another](https://github.com/BeyondCombustion/How-To-Contribute)
+#### [Go here if you'd like to add your community or suggest another to the list!](https://github.com/BeyondCombustion/How-To-Contribute)
 
 # List Of Communities
 
