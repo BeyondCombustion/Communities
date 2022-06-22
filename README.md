@@ -1,6 +1,8 @@
 
 #### [Go here if you'd like to add your community or suggest another to the list!](https://github.com/BeyondCombustion/How-To-Contribute)
 
+---
+
 # List Of Communities
 
 [/r/ccv - Cream City Vapes subreddit](https://reddit.com/r/ccv)
@@ -24,6 +26,8 @@
 [Vape Life Forum](https://forum.vapelife.com/)
 
 [VaporAsylum](https://vaporasylum.com/)
+
+---
 
 ## Navigation
 
